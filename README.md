@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gnericvibes
-- 👀 I’m interested in ... building for digital and physical fashion and music
+- 👀 I’m interested in ... building for digital and physical fashion, music and public good products
 - 🌱 I’m currently learning ... how to build a team for my projects
 - 💞️ I’m looking to collaborate on ... building a website
 - 📫 How to reach me ... email me
